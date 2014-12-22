@@ -35,9 +35,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A learned sermon handling the question of ceremonies, controuerted in our church: by Roger Hacket Do
+
 #####Body#####
-A learned sermon handling the question of ceremonies, controuerted in our church: by Roger Hacket Do
+Pſal. 122. v. 6.O pray for the peace of Hieruſalem, they ſhall proſper that loue thee, &c.THE Hebrew
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
